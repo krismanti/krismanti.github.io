@@ -6,6 +6,7 @@ Mahasiswa ilmu komputer IPB
 *081319908398*\
 *krismantii@gmail.com*\
 
+
 ## Pendidikan
 
 ### SMA NEGERI 2 CIBINONG
